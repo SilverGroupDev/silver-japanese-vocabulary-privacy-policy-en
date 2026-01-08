@@ -1,6 +1,6 @@
 # Privacy Policy for Silver Japanese
 
-**Last Updated:** [Date]
+**Last Updated:** [6/6/6]
 
 This privacy policy explains how Silver Japanese ("we," "us") collects, uses, and protects your information.
 
