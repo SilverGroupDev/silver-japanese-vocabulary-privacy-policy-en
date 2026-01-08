@@ -1,6 +1,6 @@
 # Privacy Policy for Silver Japanese: Vocabulary
 
-**Last Updated:** [23/07/2025]
+**Last Updated:** [07/01/2026]
 
 This privacy policy explains how the Android Application "Silver Japanese: Vocabulary" collects, uses, and protects your information.
 
